@@ -7,7 +7,7 @@ Flash USDT redefines cryptocurrency transfers by offering fast, secure, and cost
 ## 🔗 Connect with Us
 
 #  💬 Official Telegram: [https://t.me/flashbylucas](https://t.me/flashbylucas)
-#   💬 Official WhatsApp: [https://wa.me/+13438221882)](https://wa.me/+13438221882)
+#   💬 Official WhatsApp: [https://wa.me/+13438221882](https://wa.me/+13438221882)
 
 ---
 
@@ -91,7 +91,7 @@ In addition to wallet compatibility, Flash USDT can be deposited on select platf
 ## 🔗 Connect with Us
 
 #  💬 Official Telegram: [https://t.me/flashbylucas](https://t.me/flashbylucas)
-#   💬 Official WhatsApp: [https://wa.me/+13438221882)](https://wa.me/+13438221882)
+#   💬 Official WhatsApp: [https://wa.me/+13438221882](https://wa.me/+13438221882)
 
 ---
 ## ⚠️ Disclaimer
